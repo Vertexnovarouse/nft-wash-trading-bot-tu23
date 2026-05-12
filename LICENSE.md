@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with new NFT Mint Bot for nft wash trading bot | trailing-stop & mint-detection, the #1 nft wash trading bot. Includes trailing-stop and mint-detection
 
 
 
